@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Flaaron207
 - 👀 I’m interested in ... women.
-- 🌱 I’m currently learning ... how to mange myself and be healthier.
+- 🌱 I’m currently learning ... how to mange myself and be healthier. And coding...... lol
 - 💞️ I’m looking to collaborate on ... anybody who likes to create music, play games, sports, and so much more honestly.
 - 📫 How to reach me ... cell: 1-(562)-235-6014 e-mail: danielaaronb207@gmail.com 
 - 😄 Pronouns: ... he/him
